@@ -1,2 +1,4 @@
-# JUST1C3
-JUST1C3!!!!!!!!!!!!!!
+# respitory name
+its a respitory
+this respitory is indeed a respitory
+also this https://koolahhdued.github.io/koolwebstiebro/
